@@ -1,1 +1,1 @@
-# My Machine does not learn at all, I need a smarter machine😂
+# My machine does not learn at all, I need a smarter machine😂
